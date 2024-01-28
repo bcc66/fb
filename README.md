@@ -3,8 +3,8 @@
 发布页：www.xqy789.com
 地址①；www.ddpp23.top
 地址②；www.ddpp24.top
-地址③；www.ddpp22.top
+地址③；www.ddss1.top
 地址④；www.ddpp25.top
-地址④；[23.224.25.62](https://23.224.25.62/) (防屏蔽随时可能失效勿记)
+地址④；https://23.224.59.102/ (防屏蔽随时可能失效勿记)
 找回邮箱：qiqiwuqi7757@gmail.com
 
