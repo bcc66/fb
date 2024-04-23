@@ -2,7 +2,7 @@
 兴趣院新地址：
 发布页：www.xqy789.com
 地址①；www.wuwuqi10.top
-地址②；www.ddss9.top
+地址②；xq.wuwuqi11.top
 地址③；www.wuwuqi1.top
 
 地址④；https://23.224.59.102/ (防屏蔽随时可能失效勿记)
