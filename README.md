@@ -1,7 +1,7 @@
 
 兴趣院新地址：
 发布页：www.xqy789.com
-地址①；[fxy111.top](https://fxy111.top/)
+地址①；https://wuwuqi15.top
 地址②；https://wuwuqi13.top
 地址③；https://wuwuqi14.top
 
