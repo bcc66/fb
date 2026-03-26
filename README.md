@@ -7,19 +7,19 @@
 ### 🌐 官方永久发布页
 如果您无法访问下方地址，请首先尝试访问主发布页获取最新动态：
 * **🔗 [www.xqy789.com](https://www.xqy789.com)**
-
+- 请各位访客不要都进入推荐线路 A 
 ---
-
 ### 🚀 快速访问通道
+- 请各位访客不要都进入推荐线路 A ，会增加屏蔽几率（推荐线路 D为新UI）
 我们提供了多条线路以确保您的访问体验，如遇卡顿请切换线路：
 
 | 线路名称 | 接入地址 (点击进入) | 域名标识 | 状态 |
 | :--- | :--- | :--- | :--- |
-| **推荐线路 ①** | [立即进入](https://eedff12.top) | `eedff12.top` | ✅ 正常 |
-| **备用线路 ②** | [立即进入](https://m.eedff3.top) | `m.eedff3.top` | ✅ 正常 |
-| **高速线路 ③** | [立即进入](https://wb.eedff1.top) | `wb.eedff1.top` | ✅ 正常 |
-| **测速线路 ④** | [立即进入](https://m.eedff8.top/) | `m.eedff8.top` | ✅ 正常 |
-| **备用线路 ⑤** | [立即进入](https://xds.asdas5.top) | `xds.asdas5.top` | ✅ 正常 |
+| **推荐线路 A** | [立即进入](https://eedff12.top) | `eedff12.top` | ✅ 正常 |
+| **推荐线路 B** | [立即进入](https://m.eedff3.top) | `m.eedff3.top` | ✅ 正常 |
+| **推荐线路 C** | [立即进入](https://xingqy004.top) | `xingqy004.top` | ✅ 正常 |
+| **推荐线路 D** | [立即进入](https://m.eedff8.top/) | `m.eedff8.top` | ✅ 正常 |
+| **推荐线路 E** | [立即进入](https://eedff1.top) | `eedff1.top` | ✅ 正常 |
 
 ---
 
