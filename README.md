@@ -16,7 +16,7 @@
 | 线路名称 | 接入地址 (点击进入) | 域名标识 | 状态 |
 | :--- | :--- | :--- | :--- |
 | **推荐线路 ①** | [立即进入](https://eedff12.top) | `eedff12.top` | ✅ 正常 |
-| **备用线路 ②** | [立即进入](https://m.eedff11.top) | `m.eedff11.top` | ✅ 正常 |
+| **备用线路 ②** | [立即进入](https://m.eedff3.top) | `m.eedff3.top` | ✅ 正常 |
 | **高速线路 ③** | [立即进入](https://wb.eedff1.top) | `wb.eedff1.top` | ✅ 正常 |
 | **测速线路 ④** | [立即进入](https://m.eedff8.top/) | `m.eedff8.top` | ✅ 正常 |
 | **备用线路 ⑤** | [立即进入](https://xds.asdas5.top) | `xds.asdas5.top` | ✅ 正常 |
