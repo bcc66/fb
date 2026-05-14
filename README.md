@@ -19,7 +19,7 @@
 | **推荐线路 B** | [立即进入](https://m.eedff3.top) | `m.eedff3.top` | ✅ 正常 |
 | **推荐线路 C** | [立即进入](https://xingqy004.top) | `xingqy004.top` | ✅ 正常 |
 | **推荐线路 D** | [立即进入](https://m.eedff8.top/) | `m.eedff8.top` | ✅ 正常 |
-| **推荐线路 E** | [立即进入](https://eedff1.top) | `eedff1.top` | ✅ 正常 |
+| **推荐线路 E** | [立即进入](https://m.xingqu44.top) | `m.xingqu44.top` | ✅ 正常 |
 
 ---
 
