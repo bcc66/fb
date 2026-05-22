@@ -15,11 +15,11 @@
 
 | 线路名称 | 接入地址 (点击进入) | 域名标识 | 状态 |
 | :--- | :--- | :--- | :--- |
-| **推荐线路 A** | [立即进入](https://m.xingqu45.top) | `m.xingqu45.top` | ✅ 正常 |
+| **推荐线路 A** | [立即进入](https://g.xingqu47.top) | `xingqu47.top` | ✅ 正常 |
 | **推荐线路 B** | [立即进入](https://m.eedff3.top) | `m.eedff3.top` | ✅ 正常 |
-| **推荐线路 C** | [立即进入](https://xingqy004.top) | `xingqy004.top` | ✅ 正常 |
+| **推荐线路 C** | [立即进入](https://n.xingqu48.top) | `xingqu48.top` | ✅ 正常 |
 | **推荐线路 D** | [立即进入](https://m.eedff8.top/) | `m.eedff8.top` | ✅ 正常 |
-| **推荐线路 E** | [立即进入](https://m.xingqu44.top) | `m.xingqu44.top` | ✅ 正常 |
+| **推荐线路 E** | [立即进入](https://m.xingqu46.top) | `m.xingqu46.top` | ✅ 正常 |
 
 ---
 
