@@ -15,9 +15,9 @@
 
 | 线路名称 | 接入地址 (点击进入) | 域名标识 | 状态 |
 | :--- | :--- | :--- | :--- |
-| **推荐线路 A** | [立即进入](https://m.xxxdd1.top) | `m.xxxdd1.top` | ✅ 正常 |
+| **推荐线路 A** | [立即进入](https://m.xingqu44.top) | `m.xingqu44.top` | ✅ 正常 |
 | **推荐线路 B** | [立即进入](https://m.xxxdd7.top) | `m.xxxdd7.top` | ✅ 正常 |
-| **推荐线路 C** | [立即进入](https://m.xxxdd5.top) | `m.xxxdd5.top` | ✅ 正常 |
+| **推荐线路 C** | [立即进入](https://g.xingqu47.top) | `g.xingqu47.top` | ✅ 正常 |
 | **推荐线路 D** | [立即进入](https://m.xxxdd10.top) | `m.xxxdd10.top` | ✅ 正常 |
 | **推荐线路 E** | [立即进入](https://m.xxxdd8.top) | `m.xxxdd8.top` | ✅ 正常 |
 
