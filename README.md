@@ -20,6 +20,8 @@
 | **推荐线路 C** | [立即进入](https://g.xingqu47.top) | `g.xingqu47.top` | ✅ 正常 |
 | **推荐线路 D** | [立即进入](https://m.xxxdd10.top) | `m.xxxdd10.top` | ✅ 正常 |
 | **推荐线路 E** | [立即进入](https://m.xxxdd8.top) | `m.xxxdd8.top` | ✅ 正常 |
+| **推荐线路 F** | [立即进入](https://m.xxxdd5.top) | `m.xxxdd5.top` | ✅ 正常 |
+| **推荐线路 G** | [立即进入](https://m.eedff3.top) | `m.eedff3.top` | ✅ 正常 |
 
 ---
 
